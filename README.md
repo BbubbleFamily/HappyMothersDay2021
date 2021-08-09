@@ -1,1 +1,0 @@
-# mamij3xinm
